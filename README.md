@@ -1,3 +1,0 @@
-# scriptkuy
-<•{{{{{-<<
-Anda siap?
