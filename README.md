@@ -1,1 +1,3 @@
 # scriptkuy
+<•{{{{{-<<
+Anda siap?
